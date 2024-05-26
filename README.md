@@ -1,0 +1,1 @@
+Hola puedes crear una imagen sobre el niño de oro dela selva amazónica y de la cordillera basado en leyendas ancestrales teniendo encuenta todas las dimensiones y su aura con su entornocomo las energias que lo rodean y vision de Dios, generando las facciones en el niño que Dios escogeria con los seres que lo acompañarian
